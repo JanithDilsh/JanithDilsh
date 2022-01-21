@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **janithdilshan1199@gmail.com**
 
-- ⚡ Fun fact **I love to collect crypto ₿**
+- ⚡ Fun fact **I love to collect crypto💎**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
